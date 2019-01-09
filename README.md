@@ -1,2 +1,0 @@
-# HackB9
-yournoob
